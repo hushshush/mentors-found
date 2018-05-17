@@ -21,4 +21,4 @@ Addendum:
 
 *Through Stephanie Hurlburt's Twitter.
 
-**Pray they haven't changed it, if they had, use Twitter search feature to search their tweet word for word.
+**Pray they haven't changed it, if they had, use Twitter search feature to look for their tweet word for word.
